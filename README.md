@@ -1,7 +1,7 @@
 
 - 💻 Cursando Análise e Desenvolvimento de Sistemas na FIAP (1/4)
 - 📫 email: diogomendesmoreirax@gmail.com
-- ✊🏽 Pronomes: ele/delu
+- ✊🏽 Pronomes: elu/delu
 
 <br>
 <div>
